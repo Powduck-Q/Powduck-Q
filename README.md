@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Powduck-Q
-- 🌱 I’m Powduck Admin
+- 🌱 I’m Powduck CEO
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 🚀 Professional blockchain solutions
